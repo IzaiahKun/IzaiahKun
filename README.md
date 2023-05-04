@@ -1,3 +1,3 @@
 <p>
-<img src="https://tenor.com/view/mai-sakurajima-rascal-does-not-dream-of-bunny-girl-senpai-anime-blushing-shy-gif-15988242"/>
+<img src="https://f4.bcbits.com/img/a2467250014_10.jpg"/>
 </p>
