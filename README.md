@@ -1,1 +1,1 @@
-![img!](https://tenor.com/view/cute-anime-cute-anime-girl-anime-girl-anime-aesthetic-gif-24369232)
+![img!](https://cdn.discordapp.com/attachments/978518094915969034/1103056823902281778/Capture.png)
