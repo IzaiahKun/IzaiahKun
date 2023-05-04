@@ -1,1 +1,1 @@
-[img] (https://f4.bcbits.com/img/a2467250014_10.jpg)
+![img!](https://f4.bcbits.com/img/a2467250014_10.jpg)
