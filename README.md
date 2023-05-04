@@ -1,3 +1,1 @@
-<p>
-<img src= "https://tenor.com/view/cute-anime-girl-fun-pink-gif-21257723"/>
-</p>
+<div class="tenor-gif-embed" data-postid="25287626" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/cute-baby-mochi-gif-25287626">Cute Baby Mochi GIF</a>from <a href="https://tenor.com/search/cute+baby+mochi-gifs">Cute Baby Mochi GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
